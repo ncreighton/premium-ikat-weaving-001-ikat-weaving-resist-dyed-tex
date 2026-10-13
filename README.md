@@ -1,0 +1,2 @@
+# premium-ikat-weaving-001-ikat-weaving-resist-dyed-tex
+Stop wasting hours trying to figure out resist-dye patterns on your own—this studio gives you the exact templates and techniques to create authentic ikat designs without the trial and error.  This pattern studio eliminates the guesswork of traditional ikat weaving by providing a structured library of resist-dyed textile patterns and step-by-step gu
